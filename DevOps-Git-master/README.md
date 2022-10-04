@@ -1,2 +1,2 @@
 # GLGit
-Un dépôt git
+EFREI STUDENTS ARE THE BEST
